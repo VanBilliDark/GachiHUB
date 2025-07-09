@@ -2,11 +2,3 @@
 asdasdadada
 dsds
 ds
-ds
-
-s
-d
-s
-d
-s
-d
